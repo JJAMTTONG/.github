@@ -1,5 +1,6 @@
 
-![421245](https://github.com/user-attachments/assets/b9a82733-d339-4e2f-b899-b6237c56a4b2)
+<img src="https://github.com/user-attachments/assets/b9a82733-d339-4e2f-b899-b6237c56a4b2" width="500" height="500"/>
+
 
 짬통 특별시
 
